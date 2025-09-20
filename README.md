@@ -10,5 +10,5 @@
 - 😄 Pronouns: Hehe
 - ⚡ Fun fact: People rarily live until 100 years
 
-None of my projects probably would be commercial. I think that money is not main thing in life. 
+Probably none of my projects would be commercial. I think that money is not main thing in life. 
 (I am struggling from that tho. People think that money not main thing until they met with actual financial problems.)
